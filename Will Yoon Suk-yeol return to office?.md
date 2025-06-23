@@ -7,3 +7,5 @@ Prediction: Yes, he will. The time is predicted to be March 2025. Here are three
 
 South Korea is at a critical turning point in its national destiny, similar to the time of the Korean War, as the Cold War seems to be returning. At the same time, the possibility of Yoon being assassinated cannot be ruled out. In such a scenario, the conflict between the left and right factions would escalate drastically, and the left-wing forces would ultimately fail.   
 Prediction time:2025/01/21
+
+Predictions failed. The future of the South Korea is dangerous in the new cold war era.
