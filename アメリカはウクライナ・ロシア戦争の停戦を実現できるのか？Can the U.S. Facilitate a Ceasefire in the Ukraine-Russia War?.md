@@ -14,6 +14,7 @@
 
 したがって、トランプ氏が提案する2025年4月の停戦と和平交渉の実現は、現実的には難しいと言える。  
 
+この予測は成功した。ロシア・ウクライナ戦争の前途は緊張しなければならない。一方の経済が崩壊してこそ停戦のチャンスがある。
 ---
 
 **Can the U.S. Facilitate a Ceasefire in the Ukraine-Russia War?**  
@@ -33,3 +34,5 @@ Donald Trump has expressed his desire to bring about a ceasefire between Ukraine
 Therefore, the idea of a ceasefire and peace talks happening by April 2025, as Trump envisions, remains highly unrealistic.
 
 20250222
+
+The prediction was successful. The future of the Russia-Ukraine war is bound to be tense. Only when one side's economy collapses can there be a chance of a ceasefire.
